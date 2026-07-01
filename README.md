@@ -12,7 +12,7 @@ $\color{rgb(37, 55, 59)}{\textsf{s}}\color{rgb(56, 74, 80)}{\textsf{e}}\color{rg
 </br>
 <div align="center">
 
-<img width="800" height="600" alt="copy_C463CB7B-A0A9-412E-A79C-4E17B967D988-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/95a224fb-555a-4846-8240-83a3fd3ff723" />
+<img width="660" height="500" alt="copy_C463CB7B-A0A9-412E-A79C-4E17B967D988-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/95a224fb-555a-4846-8240-83a3fd3ff723" />
 
 </div>
 </br>
