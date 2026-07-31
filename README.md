@@ -23,7 +23,7 @@ $\color{rgb(37, 55, 59)}{\textsf{s}}\color{rgb(56, 74, 80)}{\textsf{e}}\color{rg
 </br>
 <div align="center">
 
-[<img width="85" height="103" alt="image" src="https://github.com/user-attachments/assets/eababd7a-e370-4146-9826-ac287442a290" />‎](https://bloodymary.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [<img width="91" height="108.5" alt="image" src="https://github.com/user-attachments/assets/9e8d2682-812d-4f92-886b-78e219a3e86a" />](https://rentry.co/projectbloodymary)‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎    [<img width="91" height="108.5" alt="image" src="https://github.com/user-attachments/assets/8ee391e0-b668-4934-a83b-548c9b5b0c64" />](https://pvurrity.straw.page)
+[<img width="85" height="103" alt="image" src="https://github.com/user-attachments/assets/eababd7a-e370-4146-9826-ac287442a290" />‎](https://bloodymary.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [<img width="91" height="108.5" alt="image" src="https://github.com/user-attachments/assets/9e8d2682-812d-4f92-886b-78e219a3e86a" />](https://rentry.co/mrphine)‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎    [<img width="91" height="108.5" alt="image" src="https://github.com/user-attachments/assets/8ee391e0-b668-4934-a83b-548c9b5b0c64" />](https://pvurrity.straw.page)
 
 </div>
 <div align="center">
